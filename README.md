@@ -12,6 +12,8 @@ Guidés par leur nouvelle mission, les villageois se mirent à étudier les myst
 
 Un jour, Hector décida de quitter son village pour suivre son rêve musical. Il prit sa guitare et partit à l'aventure, déterminé à conquérir le monde de la musique. Sa quête de renommée commença ce jour-là.
 
+Hector quitta le village, emportant avec lui la mélodie des étoiles. Ses chansons évoquaient la magie de cette nuit du nuage rouge, captivant le monde entier. Chaque note était un rappel de l'héritage mystique de son village.
+
 > on a pas eu le temps
 > mais on a essayé
 > on a appris que faire des betises ça côute cher
