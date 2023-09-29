@@ -11,3 +11,7 @@ Sous l'éclat des constellations, les villageois apprirent que leur village éta
 Guidés par leur nouvelle mission, les villageois se mirent à étudier les mystères célestes, développant leurs pouvoirs magiques et renforçant leur lien avec les étoiles. Ils devinrent les gardiens de la nuit, veillant sur le village et utilisant leur savoir pour guider les âmes perdues vers la lumière des constellations.
 
 Un jour, Hector décida de quitter son village pour suivre son rêve musical. Il prit sa guitare et partit à l'aventure, déterminé à conquérir le monde de la musique. Sa quête de renommée commença ce jour-là.
+
+> on a pas eu le temps
+> mais on a essayé
+> on a appris que faire des betises ça côute cher
